@@ -1,7 +1,7 @@
 
 Privacy Policy for ORVYND
 
-Jan Muhammad Qasemi built the ORVYND app as a Free app. This SERVICE is provided by Jan Muhammad Qasemi at no cost and is intended for use as is.
+Jons Games built the ORVYND app as a Free app. This SERVICE is provided by Jons Games at no cost and is intended for use as is.
 
 Information Collection and Use
 
